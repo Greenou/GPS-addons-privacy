@@ -50,4 +50,4 @@ Aucune donnée n'est vendue, partagée ou transmise à des tiers, quelle qu'en s
 
 ## 7. Contact
 
-Pour toute question relative à cette politique : **yarthaux@icloud.com**
+Pour toute question relative à cette politique : **yann.barthaux-vallee@edf.fr**
